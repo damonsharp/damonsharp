@@ -1,1 +1,1 @@
-### Senior fullstack web engineer.
+### Senior full stack web engineer.
